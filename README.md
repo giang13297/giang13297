@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @giang13297
-- 👀 I’m interested in Data, Mobile App and more.........
+- 👀 I’m interested in Backend, AI, System and more.........
 - 🌱 I’m currently learning Telecommunication
 - 📫 How to reach me. My personal facebook link: https://www.facebook.com/giang.trannguyentruong.1/
 
